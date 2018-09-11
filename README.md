@@ -9,7 +9,7 @@
 
 ## Matrix Colorful Edition
 
-![Matrix Colorful Edition](https://media.giphy.com/media/TJ85vuZqLYRx3XTNZ8/giphy.gif)
+![Matrix Colorful Edition](https://media.giphy.com/media/p4jbW1Uuyr4PxP8np5/giphy-downsized-large.gif)
 
 
 ## Matrix Colorful Edition Slow
